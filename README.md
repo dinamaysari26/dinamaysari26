@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dinamaysari26
-- 👀 I’m interested in Quality Assurance, Technical Writer, System analyst
+- 👀 I’m interested in Quality Assurance, Technical Writer, System Analyst
 - 🌱 I’m Currently diving deep into the realm of Quality Assurance & Technical Writer
 - 💞️ Open to collaborations in the fields of technology and software development
 - 📫 How to reach me dinamaysariwork@gmail.com or dinamayangsari26@gmail.com
